@@ -1,4 +1,5 @@
 # Bifteki mit Feta-Füllung, Safran-Bulgur & Ajvar
+![IMG_1745](https://github.com/user-attachments/assets/3653e13f-9222-4466-a523-53cf6b093edf)
 
 ## 🍽️ Kategorie
 Große Mahlzeit
